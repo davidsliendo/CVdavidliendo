@@ -1,2 +1,0 @@
-# CVdavidliendo
-CVdavidliendo
